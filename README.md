@@ -1,2 +1,2 @@
 # Cover-letter-SQA-
-[Cover letter sof (2).docx](https://github.com/user-attachments/files/18737245/Cover.letter.sof.2.docx)
+[Cover letter sof (2).pdf](https://github.com/user-attachments/files/18737468/Cover.letter.sof.2.pdf) 
